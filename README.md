@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Theboyfahd
+- 👀 I’m interested in some pc stuff
+- and some secret stuff
+- peace out.
